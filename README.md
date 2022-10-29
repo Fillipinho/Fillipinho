@@ -1,0 +1,4 @@
+- 😊 HiHi I’m Fillipe 
+- 🇧🇷 BR 
+- 🎮 Games...
+- 🌱 ADS & LOG 
